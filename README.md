@@ -1,4 +1,4 @@
-![logo](https://github.com/NILAM-RAI/NILAM-RAI/blob/main/INFO/giphy.gif)
+![logo](https://github.com/N1L4M/N1L4M/blob/main/INFO/1729777889671.jpg)
 
 
 https://github.com/user-attachments/assets/4383a749-e2bd-437e-a41b-1a7f8362e445
